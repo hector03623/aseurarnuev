@@ -1,2 +1,0 @@
-# aseurarnuev
-asegurar
